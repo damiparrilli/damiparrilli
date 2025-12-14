@@ -19,7 +19,7 @@ Estoy en búsqueda de proyectos Freelance o trabajos que me permitan explotar es
 
 ## Mis medios de contacto:
 [![Behance](https://img.shields.io/badge/Behance-1769ff?logo=behance&logoColor=white)](https://behance.net/damianparrilli) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/damianparrilli) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:damianparrilli) 
-[![WhatsApp](https://raw.githubusercontent.com/CLorant/readme-social-icons/1a078b4b319beaa7fbcd202fa7fc1fc5d79d94d2/small/filled/whatsapp.svg) +54 11 6051-8730](https://wa.me/541160518730)
+[![WhatsApp](https://raw.githubusercontent.com/CLorant/readme-social-icons/1a078b4b319beaa7fbcd202fa7fc1fc5d79d94d2/small/filled/whatsapp.svg) +54 11 3160-4059](https://wa.me/541131604059)
 
 
 
